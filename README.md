@@ -11,3 +11,5 @@ list of delivery places I like
 * lot of small farms sell on Etsy -- though sometimes slow to deliver.  This is where I found ginger and garlic
 * ebay for pantry items
 
+## Not so good
+* Boxes of Eden -- friendly customer service, arrived on time, but produce was ugh.  Bananas arrived smooshed, celery was wilted (ok for soup), brocoli was yellow with some kind of rot. Carrots were fine.
