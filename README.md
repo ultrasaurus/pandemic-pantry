@@ -5,6 +5,8 @@ list of delivery places I like
 * Citrus: https://www.pearsonranch.com/ -- lovely oranges and lemons
 * Fruit: https://www.froghollow.com/ -- wonderful avocados
 * Coffee subscription: https://bluebottlecoffee.com/
+* Alcohol delivered from local stores by local merchants: https://drizly.com/
+* Misc pantry items + cheese: https://www.igourmet.com/  (cheese came with reusable cold pack)
 
 ## Ordered, we'll see...
 * Toilet paper (by the case, we bought for several households together) + hand sanitizer — https://www.tiddlytotsstore.com/
