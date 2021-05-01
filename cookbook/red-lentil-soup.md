@@ -1,7 +1,8 @@
 
 # Red Lentil Soup
 
-Ingredients:
+Ingredients
+
 - 1 large onion
 - 2 medium carrots
 - 2 cups red lentils
@@ -9,8 +10,9 @@ Ingredients:
 - 1/2 cup lemon juice
 - 1 tsp salt
 
+Instructions
 
-1. Chop onion and carrots (big chunks are fine) and sautee in large pot (until onions are soft or slightly browned).  
+1. Chop onion and carrots (big chunks are fine) and saute in large pot (until onions are soft or slightly browned).  
 
 1. Add lentils and water.  
 

@@ -1,17 +1,20 @@
 # Chocolate Sorbet
 
-2/3 cup cocoa powder
-2/3 cup semi-sweet chocolate (e.g. chocolate chips)
-1 cup sugar
-3 cups water
-1 tsp vanilla
-pinch of salt
+Ingredients
 
-Mix all but vanilla in a pot.  Bring to a boil, whisking constantly. 
+- 2/3 cup cocoa powder
+- 2/3 cup semi-sweet chocolate (e.g. chocolate - chips)
+- 1 cup sugar
+- 3 cups water
+- 1 tsp vanilla
+- pinch of salt
 
-Refridgerate until chilled.
+Instructions
 
-Whisk again to fluff it up.
+1. Mix all but vanilla in a pot.  Bring to a boil, whisking constantly. 
 
-Freeze with ice-cream maker.  
-(Depending on capacity use mutliple batches, yeilds 4 cups.)
+1. Refrigerate until chilled.
+
+1. Whisk again to fluff it up.
+
+1. Freeze with ice-cream maker.  (Depending on capacity use mutliple batches, yields 4 cups.)
