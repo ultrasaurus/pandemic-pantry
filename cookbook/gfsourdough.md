@@ -20,7 +20,7 @@ Prepare the night before you make the bread.
  - 1 C bean  flour (chickpea..)
  - 1 T xantham gum
  - 4 t salt
- - 4 T sugar
+ - 6 T sugar
  - 4 T caraway, ground
  - 4 T caraway,whole
  - 4 T cocoa powder
