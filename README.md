@@ -7,3 +7,4 @@ Feel free to use any info for personal reference and your own shopping & cooking
 
 Maybe someday, we'll publish the cookbook full of recipes that helped our made-family during 8 week full quarantine and over a year of pandemic isolation.
 
+© 2020-2021 Authors, Blazing Cloud Inc.
