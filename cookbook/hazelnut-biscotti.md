@@ -14,7 +14,7 @@ Wet
 Dry
 - 2/3 cup gluten-free all purpose flour
 - 1 cup hazelnut flour
-- 1/2 tsp backing sode
+- 1/2 tsp backing soda
 - 1/4 tsp salt
 
 Whole nuts
