@@ -1,5 +1,4 @@
 # Gluten-free Sourdough Bread
- something
 
  ## Feed the Starter & Remove Portion
 
@@ -32,4 +31,9 @@ Prepare the night before you make the bread.
  Work the starter and H2O into the dry ingredients until it is one large sticky
  ball.
  Knead the ball to add air into it.
- Divide the ball in half and shape into
+ Divide the ball in half and shape into smooth round loaves.
+ Dust with flour.  Place loaf on parchment paper 
+ (sprinkled with cornflour, if you like) and lowered them into bowls to rise. 
+ Place under the oven light in the oven to create some warmth. 
+ The next day (or 8-12 hours later) lift the parchment paper into the cast iron 
+ pots after cutting the slits.
